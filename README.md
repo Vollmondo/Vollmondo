@@ -1,1 +1,3 @@
-&#128187;	 I’m looking to take part in developing of an MMO RPG and exoskeleton. No matter what. 
+&#128187;	 I’m looking forward to take part in development of two things:
+    MMO RPG and exoskeleton. 
+    No matter what. 
